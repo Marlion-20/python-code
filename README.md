@@ -1,2 +1,2 @@
-🤖 AI Engineer, teaching machines magic
+🤖 AI Engineer | teaching machines magic
 
